@@ -1,6 +1,6 @@
-#️⃣ Aluno: RAMON MARQUES COUTINHO
-#️⃣ Matrícula CAIXA: C078969-0
-#️⃣ Assistente Pleno
+#️⃣ Aluno: Lucas Rodrigues da Silva Leite
+#️⃣ Matrícula CAIXA: C161558
+#️⃣ Técnico Bancário Novo
 #️⃣ CESOB
 
 
